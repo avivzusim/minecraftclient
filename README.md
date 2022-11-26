@@ -6,7 +6,7 @@ Have fun :)
 *the client is for 1.8 -
 
 
-There is just one rule!! send it to your'e friends
+There is just one rule!! send it to your'e friends - # edited: me as a kid lol..
 
 The Client Includes:
 
